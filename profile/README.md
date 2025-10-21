@@ -1,4 +1,4 @@
-# 🧾 Xero Promo Code 2025 – Get 90% OFF for 6 Months!
+# 🧾 Xero Promo Code 2025 – Get 90% OFF Now!
 
 Welcome to the **Xero Promo Code guide** — your one-stop resource to unlock the **best discounts and offers on Xero accounting software**.  
 If you're a small business owner, accountant, or freelancer looking to simplify bookkeeping and save money, you’re in the right place.
